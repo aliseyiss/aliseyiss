@@ -1,4 +1,4 @@
-### Hi there 🖖🏼 My Name is Ali Seyis and I am a Data Analyst🚀
+### Hi there 🖖🏼 My Name is Ali Seyis🚀
 
 📊🔍 Dive into data with me! With an insatiable curiosity and a knack for uncovering insights, I transform raw numbers into actionable strategies. From trend spotting to forecasting, I thrive on the thrill of unraveling data puzzles and driving business growth. Let's turn information into innovation together!
 
